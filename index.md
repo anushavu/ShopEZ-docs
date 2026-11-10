@@ -49,7 +49,7 @@ Contact
 
 If you have questions regarding this Privacy Policy, please contact:
 
-your-samkrishrt@gmail.com
+samkrishrt@gmail.com
 
 Changes to This Policy
 
